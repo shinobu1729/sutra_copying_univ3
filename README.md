@@ -1,1 +1,0 @@
-# sutra_copying_univ3
